@@ -1,1 +1,2 @@
 # Plum-Cake
+a German dessert recipe that has the goodness of a variety of dry fruits. This yummylicious cake is prepared by soaking raisins, cashews, walnuts, figs, dates and tutti-frutti in a concoction of rum, red wine and beer. While the nuts are soaked, the wonderful flavours of these drinks get absorbed in it. An ideal dessert recipe for the occasion of birthday or anniversary of someone special, this cake will surely win everyone's heart.
